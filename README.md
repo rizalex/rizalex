@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-#### My name **Rizal** a CyberSecurity with specialized Defense areas, working Start-up Singapore.
+#### My name **Rizal** a CyberSecurity with specialized Defense areas, and working in Start-up Singapore.
 
 ##### About me:
 
